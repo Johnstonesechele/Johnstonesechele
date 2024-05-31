@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Johnstonesechele
+- 👀 I’m interested in ... cybersecurity and related
+- 🌱 I’m currently learning .. web development
+- 💞️ I’m looking to collaborate on .. cybersecurity and related
+- 📫 How to reach me ...facebook @yassinseychelle, x @yassinsechelle, ig @johnstoneseychelles
+- 😄 Pronouns: he,mr
+- ⚡ Fun fact:codding
